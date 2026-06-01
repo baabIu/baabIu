@@ -23,7 +23,8 @@
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-06-01_105135404.png" /></div>
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-06-01_105218676.png" /></div>
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-06-01_105117520.png" /></div>
-
-
-https://github.com/user-attachments/assets/0605af24-113c-473d-ad1d-b6f1cfeddc68
-
+<div align="center"> ㅤ </div>
+<p align="center">
+ㅤ $${\color{#cf6f84}i}$$ $${\color{#cf6f84}drew}$$ $${\color{#cf6f84}yellowool's}$$ $${\color{#cf6f84}pfp}$$ $${\color{#cf6f84}also}$$ $${\color{#cf6f84}lol}$$  $${\color{#cf6f84}YIIKES}$$ ㅤ
+</p>
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-06-01_105910011.png" /></div>
