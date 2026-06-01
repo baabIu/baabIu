@@ -10,7 +10,7 @@
 </p>
 <p align="center">
  $${\color{#cf6f84}follow}$$ $${\color{#cf6f84}these}$$ $${\color{#cf6f84}guys}$$ $${\color{#cf6f84}too}$$ ㅤ</br>
- <a href= "https://github.com/yurislop">♡♡♡ ily</a>ㅤ<a href= "https://rentry.co/transadori">absolute goat??</a>ㅤ<a href= "https://github.com/toewrestlergod3000">sukuna biggest fan</a>ㅤ<a href= "https://github.com/INJECTIONSHOT">zolaw fan</a>ㅤ<a href= "https://github.com/CrucifyCer">my og</a>ㅤ<a href= "https://github.com/Torchblossom">matcha matcha matcha</a>ㅤ<a href= "https://github.com/ACULON">fluixon biggest fan</a>ㅤ<a href= "https://github.com/pawnresearch">gachiakutaling</a>
+ <a href= "https://github.com/yurislop">♡♡♡ ily</a>ㅤ<a href= "https://github.com/transadori">absolute goat??</a>ㅤ<a href= "https://github.com/toewrestlergod3000">sukuna biggest fan</a>ㅤ<a href= "https://github.com/INJECTIONSHOT">zolaw fan</a>ㅤ<a href= "https://github.com/CrucifyCer">my og</a>ㅤ<a href= "https://github.com/Torchblossom">matcha matcha matcha</a>ㅤ<a href= "https://github.com/ACULON">fluixon biggest fan</a>ㅤ<a href= "https://github.com/pawnresearch">gachiakutaling</a>
 </p>
 <div align="center"> ㅤ </div>
 <div align="center"> ㅤ </div>
