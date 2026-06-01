@@ -6,7 +6,7 @@
 ⠀
 <p align="center">
  $${\color{#c5bda3}check}$$ $${\color{#c5bda3}out}$$ $${\color{#c5bda3}my}$$ $${\color{#c5bda3}links}$$ ㅤ</br>
- <a href= "https://set.atabook.org">ata</a>ㅤㅤ<a href= "https://rentry.co/cmeo">rentry</a>ㅤㅤ<a href= "https://github.com/Iove-birds">main</a>ㅤㅤ<a href= "https://github.com/femrot">2nd main</a>
+ <a href= "https://set.atabook.org">ata</a>ㅤㅤ<a href= "https://rentry.co/cmeo">rentry</a>ㅤㅤ<a href= "https://github.com/Iove-birds">main</a>ㅤㅤ<a href= "https://lordburney.straw.page">funny strawpage</a>
 </p>
 <p align="center">
  $${\color{#cf6f84}follow}$$ $${\color{#cf6f84}these}$$ $${\color{#cf6f84}guys}$$ $${\color{#cf6f84}too}$$ ㅤ</br>
