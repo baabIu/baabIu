@@ -10,7 +10,9 @@ check out my links </br>
 </p>
 <p align="center">
  follow these guys too </br>
- <a href= "https://github.com/transadori">absolute goat??</a>ㅤ<a href= "https://github.com/toewrestlergod3000">sukuna biggest fan</a>ㅤ<a href= "https://github.com/INJECTIONSHOT">zolaw fan</a>ㅤ<a href= "https://github.com/CrucifyCer">my og</a>ㅤ<a href= "https://github.com/ACULON">fluixon biggest fan</a>ㅤ<a href= "https://github.com/pawnresearch">gachiakutaling</a>
+ <a href= "https://github.com/transadori">absolute goat??</a>ㅤ<a href= "https://github.com/toewrestlergod3000">sukuna biggest fan</a>ㅤ<a href= "https://github.com/CrucifyCer">my og</a>ㅤ<a href= "https://github.com/ACULON">fluixon biggest fan</a>ㅤ<a href= "https://github.com/deepaffection">affection is deep</a>ㅤ<a href= "https://github.com/poisonedRitual">planets</a>ㅤ<a href= "https://github.com/germanstare">shig wants her</a>ㅤ<a href= "https://github.com/iacons-archivist">wi wi wi wi</a> </br>
+  </br>
+  <a href= "https://www.youtube.com/@yuconmc">niche (yuuki)</a>ㅤ<a href= "https://www.youtube.com/@yomprr">niche 2 (yom)</a>ㅤ<a href= "https://www.tiktok.com/@fazaplaya?lang=en">niche 3 (faza)</a>ㅤ<a href= "https://www.twitch.tv/fjerax">niche 4 (fj)</a>ㅤ<a href= "https://www.youtube.com/@TaylorieYT">niche 5 (taylorie)</a>ㅤ<a href= "https://youtube.com/artualcm">non niche loser (artual)</a>
 </p>
 <div align="center"> ㅤ </div>
 <div align="center"> ㅤ </div>
