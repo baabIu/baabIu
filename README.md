@@ -6,7 +6,7 @@ im the number 1 fantst fan look at this bro ➝
 ⠀
 <p align="center">
 check out my links </br>
- <a href= "https://set.atabook.org">ata</a>ㅤㅤ<a href= "https://rentry.co/cmeo">rentry</a>ㅤㅤ<a href= "https://github.com/Iove-birds">main</a>ㅤㅤ<a href= "https://lordburney.straw.page">funny strawpage</a>
+ <a href= "https://set.atabook.org">ata</a>ㅤㅤ<a href= "https://rentry.co/cmeo">rentry</a>ㅤㅤ<a href= "https://github.com/cme-o">main</a>ㅤㅤ<a href= "https://lordburney.straw.page">funny strawpage</a>
 </p>
 <p align="center">
  follow these guys too </br>
