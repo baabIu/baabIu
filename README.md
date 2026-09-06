@@ -27,6 +27,6 @@ i played in the rich vs poor event </br>
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-06-01_105117520.png" /></div>
 <div align="center"> ㅤ </div>
 <p align="center">
-i drew yellowool's pfp also lol YIIKES
+i also drew yellowool's pfp in 2024 lol YIIKES.... no i dont support him anymore..
 </p>
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-06-01_105910011.png" /></div>
