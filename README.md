@@ -10,7 +10,7 @@ check out my links </br>
 </p>
 <p align="center">
  follow these guys too </br>
- <a href= "https://github.com/transadori">absolute goat??</a>ㅤ<a href= "https://github.com/toewrestlergod3000">aresnal freak</a>ㅤ<a href= "https://github.com/Dyscoria">my og</a>ㅤ<a href= "https://github.com/FLUXARATA">fluixon biggest fan</a>ㅤ<a href= "https://github.com/deepaffection">affection: *is deep*</a>ㅤ<a href= "https://github.com/germanstare">xal: *is cos*</a> </br>
+ <a href= "https://github.com/transadori">absolute goat??</a>ㅤ<a href= "https://github.com/toewrestlergod3000">aresnal freak</a>ㅤ<a href= "https://github.com/Dyscoria">my og</a>ㅤ<a href= "https://github.com/FLUXARATA">fluixon biggest fan</a>ㅤ<a href= "https://github.com/deepaffection">affection: *is deep*</a>ㅤ<a href= "https://github.com/germanstare">xal: *is cos*</a>ㅤ<a href= "https://github.com/plqnetz">planets</a> </br>
   </br>
   <a href= "https://www.youtube.com/@yuconmc">niche (yuuki ♡)</a>ㅤ<a href= "https://www.youtube.com/@yomperrr">niche 2 (yom ♡)</a>ㅤ<a href= "https://www.tiktok.com/@fazaplaya?lang=en">niche 3 (faza ♡)</a>ㅤ<a href= "https://www.twitch.tv/fjerax">niche 4 (fj ♡)</a>ㅤ<a href= "https://www.youtube.com/@mellowtuned">semi niche 5 (mellowtune ♡)</a>ㅤ<a href= "https://youtube.com/artualcm">non niche loser (artual ♡)</a>
 </p>
